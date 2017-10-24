@@ -1,0 +1,1 @@
+When i started to play the founder, i realized that this type of game requires alot of time and patience to accomplish alot. The game itself was very tedious. I would send out my employees to do tasks and i would make money but then end up negative, so that would make the game a little frustrating. It was fun going head to head with other companies and earning more money though.
